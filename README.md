@@ -9,6 +9,5 @@ alurastartestudante@email.com
 
 @alurastartestudante
 
-![]([link](https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fview%2Fcachorro-cachorrinho-doguinho-gjirlfriend-gif-25038662&psig=AOvVaw2ReuRx7KpKxzXwTe2WMK53&ust=1717513785869000&source=images&cd=vfe&opi=89978449&ved=0CA8QjRxqFwoTCLDX3Mrbv4YDFQAAAAAdAAAAABAE))
-
+![]([link](https://tenor.com/pt-BR/view/dancinha-dancinhaboladaadriano-gif-1255678202582806186))
 
